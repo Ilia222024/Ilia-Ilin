@@ -5,7 +5,7 @@
 ---
 
 ### 📬 Контакты  
-- 📧 **Email:** [iitiro999@.mail.ru](mailto:iitiro999@.mail.ru)
+- 📧 **Email:** [iitiro999@.mail.ru](mailto:iitiro999@mail.ru)
 - 💬 **WhatsApp:** [Написать в WhatsApp](https://wa.me/79880724999) 
 - 📡 **Telegram:** [IIII_Iliya](https://t.me/IIII_Iliya)
 
